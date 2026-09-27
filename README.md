@@ -60,7 +60,7 @@ I'm currently focusing on:
 
 ## Contact
 
-**Email:** dilum.damsara7@gmail.com
+**Email:** dilum.damsara7@gmail.com  
 **GitHub:** You're here 
 
 
