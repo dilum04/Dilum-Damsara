@@ -58,6 +58,10 @@ I'm currently focusing on:
 
 ---
 
+## Contact
+
+**Email:** dilum.damsara7@gmail.com
+**GitHub:** You're here 
 
 
 **Thanks for visiting my profile! **
